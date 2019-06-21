@@ -1,6 +1,8 @@
 By Kertivan
 
 ESP assignment answers 5-10
+
+
 5. Dahil binasbasan sila ng kapangyarihan ng Diyos at dahil dito ay titibay
 6. dahil ito ang bumubuo ng isang barangay at bumubuo sa komonidad
 7. iiral ang pamilya sa pamamagitan ng pagmamahalan ng bawat miyembro ng pamila
